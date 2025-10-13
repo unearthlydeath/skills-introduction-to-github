@@ -1,1 +1,1 @@
-welcome to the do over
+Welcome to my GitHub profile!
